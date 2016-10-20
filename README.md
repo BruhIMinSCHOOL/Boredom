@@ -1,0 +1,2 @@
+# Boredom
+bruh im learning!
